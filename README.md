@@ -26,7 +26,7 @@ my friends are the twinkest people I've seen/j
 
 ,
 
-sure sure take inspirations from me, I'm happy see people taking insps from me. however don't take heavy inspirations! its a copy for me :(
+sure sure take inspirations from me, I'm happy to see others taking ideas from me. however don't take heavy inspirations! its a copy for me :(
 
 ,
 
