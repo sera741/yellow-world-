@@ -40,6 +40,10 @@ pelase introduce me your boundaries if you felt uncomfortable with something, I 
 
 no dnis your good buddy
 
+,
+
+I don't mind what you say to me (I don't have a high sensitivity in social)
+
 
 I LOVE YOU MYU FIRNEDS!!!!!!!!!!!!!!!!!!!
 
