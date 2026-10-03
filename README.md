@@ -48,6 +48,14 @@ I LOVE YOU MYU FIRNEDS!!!!!!!!!!!!!!!!!!!
 
 
 
+
+
+
+
+PLEASEEEEE READ THIS [CT AWARENESS](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc?tab=t.0) ABOUT COPY TOWN! TO AVOID YOUR SKIN GETTING STOLEN !!! _made_by_me_
+
+
+
 ok get out I'm cooking
 <img width="736" height="736" alt="1000100594" src="https://github.com/user-attachments/assets/fc242657-f457-42ec-973a-e5eacd5d6479" />
 
