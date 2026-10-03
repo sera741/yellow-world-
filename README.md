@@ -42,10 +42,11 @@ no dnis your good buddy
 
 ,
 
-I don't mind what you say to me (I don't have a high sensitivity in social)
+I don't mind what you say to me (Im not really sensitive in online)
 
 
 I LOVE YOU MYU FIRNEDS!!!!!!!!!!!!!!!!!!!
+
 
 
 
